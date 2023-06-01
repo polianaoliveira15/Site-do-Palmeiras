@@ -1,2 +1,2 @@
 # Site-do-Palmeiras
-heloise julya e poliana
+Heloise, Julya e Poliana.
